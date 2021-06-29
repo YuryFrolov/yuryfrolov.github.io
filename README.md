@@ -1,1 +1,1 @@
-# yuryfrolov.github.io
+# yuri-frolov.github.io
